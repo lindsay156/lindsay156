@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @lindsay156
 - 👀 I’m interested in all things R
-- 🌱 I’m currently learning ...
 - 📫 You can reach me by email at lindsaymg1001@gmail.com
 - 😄 Pronouns: she/her
   
